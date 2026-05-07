@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS smart Template - cloud sync and auto-retouch, the #1 template. Includes cloud sync and auto-retouch for a smoother
 
 
 
